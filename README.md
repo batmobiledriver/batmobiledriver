@@ -1,6 +1,5 @@
 <h4 align="left">for contact</h4>
 
- - Discord: [zke឵#8420](https://discord.com/users/780348378202505266)
  - Spotify: [berat](https://open.spotify.com/user/zawafubyb5c06p0g6f4qjpbzo?si=020329e4c5cd43ab)
 
 <h4 align="left">views</h4>
